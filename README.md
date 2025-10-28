@@ -1,4 +1,7 @@
 # My Favorite Series:  Moriarty the Patriot (憂国のモリアーティ)
+**Genre:** Mystery | Psychological | Historical | Crime  
+**Studio:** Production I.G  
+**Based on:** *Moriarty the Patriot* manga by Ryōsuke Takeuchi & Hikaru Miyoshi
 
 ## 💭 Why I Love It
 - Complex moral themes and philosophical questions about justice and morality.  
